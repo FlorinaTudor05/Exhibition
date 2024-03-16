@@ -1,1 +1,1 @@
-# Ehibition
+# Exhibition
